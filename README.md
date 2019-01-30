@@ -1,0 +1,2 @@
+# zamotany.xyz-
+zamotany.xyz/
